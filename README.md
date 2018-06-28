@@ -10,3 +10,5 @@ Karam adalah kelompok ketiga dan yang keempat Vertiga dua kelompok ini tidak dia
 =
 Pemimpin Legiounz, Kartamiharja Kai seorang pelarian. Ia pembawa lambang negara ketika kudeta berakhir dan Dalmat kehilangan kepercayaan setelah kalah dalam turnamen. Kartamiharja membuat lambang negara itu sebagai monumen di kota utama Valiandra yang dijadikan kota bersama. Kota bernama Maizkara itu adalah kota yang sering dijadikan tempat diselenggarakannya turnamen. Ketika Immortal Boyz mengakui kekalahan dan bersama membangun kembali Valiandra sebagian dari anggota kelompok secara diam-diam di bawah pimpinan Poim Havazi merintis gerakan untuk mengacau keamanan.
 =
+Pada awal, tidak pernah ada Immortal Boyz. Tapi ada seorang bernama Zaizo Boyz, sesuatu terjadi padanya ketika turnamen bela diri kuno masa sebelum berdiri Valiandra atau negeri-negeri selain Valiandra. Boyz menjadi kuat karena meteor yang mengenai tubuhnya. Tapi tubuhnya tetap menjadi seorang anak kecil. Ia akan menjadi seperti itu seperti tidak akan pernah mengalami pertumbuhan layaknya seorang anak normal.
+=
