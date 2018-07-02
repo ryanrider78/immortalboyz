@@ -18,4 +18,5 @@ Pada awal, tidak pernah ada Immortal Boyz. Tapi ada seorang bernama Zaizo Boyz, 
 =
 Boyz menghilang sejak sadar bahwa namanya digunakan kelompok takbertanggungjawab yang mengacaukan keamanan dan stabilitas dunia. Sejak saat itu nama Immortal Boyz menjadi nama terburuk yang pernah diketahui alam semesta. Satu hal yang diketahui beberapa sahabat Boyz selama ini kalau hal alami yang mampu dilakukannya ialah mengubah ukuran dan bentuk tubuhnya meski tidak bertahan lama. Boyz selama ini menggunakan kemampuan alami itu untuk menyembunyikan keberadaannya.
 =
+Lima ratus tahun lamanya, takterdengar lagi nama Immortal Boyz sebagai individu. Tapi dunia dikurung teror oleh Immortal Boyz sebagai kelompok pengacau dan bekerja dalam kegelapan. Denmar, Beiru dan nama-nama baru Paraimorta sebagai organisasi dalam dukungan serikat bangsa berusaha menyelidiki keberadaan Immortal Boyz dari tempat ke tempat yang diduga menjadi markas rahasia mereka.
 =
