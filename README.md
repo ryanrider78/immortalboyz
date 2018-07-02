@@ -1,4 +1,5 @@
 LAUTTHAYYA
+=
 ***
 "Namaku Denmar, aku lelaki beruntung bisa bertemu dengan gadis secantik engkau Yanahiza." Sahut pemuda itu sambil meringis.
 Sosok tinggi putih langsat berbalut setelan jaket dan celana ketat di depannya tersenyum.
