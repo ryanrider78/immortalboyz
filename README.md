@@ -16,5 +16,6 @@ Pemimpin Legiounz, Kartamiharja Kai seorang pelarian. Ia pembawa lambang negara 
 =
 Pada awal, tidak pernah ada Immortal Boyz. Tapi ada seorang bernama Zaizo Boyz, sesuatu terjadi padanya ketika turnamen bela diri kuno masa sebelum berdiri Valiandra atau negeri-negeri selain Valiandra. Boyz menjadi kuat karena meteor yang mengenai tubuhnya. Tapi tubuhnya tetap menjadi seorang anak kecil. Ia akan menjadi seperti itu seperti tidak akan pernah mengalami pertumbuhan layaknya seorang anak normal.
 =
-Boyz menghilang sejak sadar bahwa namanya digunakan kelompok takbertanggungjawab yang mengacaukan keamanan dan stabilitas dunia. Sejak saat itu nama Immortal Boyz menjadi nama terburuk yang pernah diketahui alam semesta.  
+Boyz menghilang sejak sadar bahwa namanya digunakan kelompok takbertanggungjawab yang mengacaukan keamanan dan stabilitas dunia. Sejak saat itu nama Immortal Boyz menjadi nama terburuk yang pernah diketahui alam semesta. Satu hal yang diketahui beberapa sahabat Boyz selama ini kalau hal alami yang mampu dilakukannya ialah mengubah ukuran dan bentuk tubuhnya meski tidak bertahan lama. Boyz selama ini menggunakan kemampuan alami itu untuk menyembunyikan keberadaannya.
+=
 =
