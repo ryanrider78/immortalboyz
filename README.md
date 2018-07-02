@@ -1,4 +1,12 @@
 LAUTTHAYYA
+
+"Namaku Denmar, aku lelaki beruntung bisa bertemu dengan gadis secantik engkau Yanahiza." Sahut pemuda itu sambil meringis.
+Sosok tinggi putih langsat berbalut setelan jaket dan celana ketat di depannya tersenyum.
+Kakek tua di sampingnya memandang ketus.
+"Kau mau dihajar pengawalku?"
+Denmar, pemuda itu tersenyum. "Jika kau mau jadi kekasihku, aku tidak keberatan dihajar beberapa kali."
+Satomi duduk di sebelah seorang bocah yang bermain air hujan, berusaha berpayung pohonan saat itu. Satomi mencibir dan mengatakan sesuatu yang menghina Denmar. "Dasar lelaki!"
+
 =
 Masa depan, masa depan dunia yang bernama Fethrzen atau dunia para petarung: sebutan yang digunakan para pendatang dari dunia lain untuk Fethrzen. Dunia ini satu-satunya tempat yang dimana orang-orang berkemampuan melebihi kemampuan orang biasa. Kemampuan itu kemampuan alami mereka yang dibawa sejak mereka lahir. Seperti halnya Denmar Neimar, seorang petarung yang lolos pada turnamen uji kemampuan yang diselenggarakan setiap periode oleh berbagai pihak di Fethrzen.
 =
