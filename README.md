@@ -13,7 +13,10 @@ Denmar, pemuda itu tersenyum. "Jika kau mau jadi kekasihku, aku tidak keberatan 
 
 Satomi duduk di sebelah seorang bocah yang bermain air hujan, berusaha berpayung pohonan saat itu. Satomi mencibir dan mengatakan sesuatu yang menghina Denmar. "Dasar lelaki!"
 
-Bocah itu tertawa ketika Satomi kesal terciprati genangan air hujan yang dimainkannya. "Bocah sialan! Jangan main genangan air hujan, lihat semua mengenaiku!"
+Bocah itu tertawa ketika Satomi kesal terciprati genangan air hujan yang dimainkannya. "Bocah sialan! Jangan main genangan air hujan, lihat semua mengenaiku! Aku benci jika baju kena basah!"
+
+"Maafkan dia, dia hanya bermain-main. Lagipula, pakaianmu lama takpernah kau cuci Satomi." Sahut Yanahiza tersenyum saat menoleh pada sahabatnya itu. Kemudian pandangannya berbalik pada Denmar dan ayahnya. Dua orang itu terlihat seperti berdebat.
+
 ***
 Masa depan, masa depan dunia yang bernama Fethrzen atau dunia para petarung: sebutan yang digunakan para pendatang dari dunia lain untuk Fethrzen. Dunia ini satu-satunya tempat yang dimana orang-orang berkemampuan melebihi kemampuan orang biasa. Kemampuan itu kemampuan alami mereka yang dibawa sejak mereka lahir. Seperti halnya Denmar Neimar, seorang petarung yang lolos pada turnamen uji kemampuan yang diselenggarakan setiap periode oleh berbagai pihak di Fethrzen.
 =
