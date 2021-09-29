@@ -7,11 +7,11 @@ Sosok tinggi putih langsat berbalut setelan jaket dan celana ketat di depannya t
 
 Kakek tua di sampingnya memandang ketus.
 
-"Kau mau dihajar pengawalku?"
+"Kau mau dihajar pengawalku?" Sahut gadis yang dipanggil Yanahiza. Satomi Yanahiza membuang muka. Sama ketus dengan kakek tua bertubuh tambur yang kini bergerak mendekati anak kecil yang tengah bercanda bermain air hujan sampai basah kuyup. 
 
 Denmar, pemuda itu tersenyum. "Jika kau mau jadi kekasihku, aku tidak keberatan dihajar beberapa kali."
 
-Satomi duduk di sebelah seorang bocah yang bermain air hujan, berusaha berpayung pohonan saat itu. Satomi mencibir dan mengatakan sesuatu yang menghina Denmar. "Dasar lelaki!"
+Satomi duduk mengikuti di sebelah seorang bocah yang bermain air hujan, tapi berusaha berpayung pohonan saat itu. Satomi mencibir dan mengatakan sesuatu yang menghina Denmar. "Dasar lelaki!"
 
 Bocah itu tertawa ketika Satomi kesal terciprati genangan air hujan yang dimainkannya. "Bocah sialan! Jangan main genangan air hujan, lihat semua mengenaiku! Aku benci jika baju kena basah!"
 
