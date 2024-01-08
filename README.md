@@ -17,7 +17,7 @@ Satomi mencibir dan terdengar mengatakan sesuatu yang menghina Denmar. "Dasar le
 
 Bocah itu tertawa ketika Satomi kesal terciprati genangan air hujan yang dimainkannya. "Bocah sialan! Jangan main genangan air hujan, lihat semua mengenaiku! Aku benci jika baju kena basah!"
 
-"Maafkan dia, dia hanya bermain-main. Lagipula, pakaianmu lama takpernah kau cuci Satomi." Sahut Goro Yanahiza tersenyum saat menoleh pada adiknya itu. Kemudian pandangannya berbalik pada Denmar dan kemudian pada ayahnya. Dua orang itu terlihat seperti berdebat. Ayahnya seperti mengenal Denmar. Dai Yahahiza mengenal siapa Denmar. Denmar pasti punya alasan dengan sikapnya pada Satomi.[]
+"Maafkan dia, dia hanya bermain-main. Lagipula, pakaianmu lama takpernah kau cuci Satomi." Sahut Goro Yanahiza tersenyum saat menoleh pada adiknya itu. Kemudian pandangannya berbalik pada Denmar dan kemudian pada ayahnya. Dua orang itu terlihat seperti berdebat. Ayahnya seperti mengenal Denmar. Dai Yanahiza mengenal siapa Denmar. Denmar pasti punya alasan dengan sikapnya pada Satomi.[]
 
 
 
