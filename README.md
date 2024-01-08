@@ -19,9 +19,9 @@ Bocah itu tertawa ketika Satomi kesal terciprati genangan air hujan yang dimaink
 
 "Maafkan dia, dia hanya bermain-main. Lagipula, pakaianmu lama takpernah kau cuci Satomi." Sahut Goro Yanahiza tersenyum saat menoleh pada adiknya itu. Kemudian pandangannya berbalik pada Denmar dan kemudian pada ayahnya. Dua orang itu terlihat seperti berdebat. Ayahnya seperti mengenal Denmar. Dai Yanahiza mengenal siapa Denmar. Denmar pasti punya alasan dengan sikapnya pada Satomi.[]
 
-=
 
-=
+---------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
+
 
 Masa depan, masa depan dunia yang bernama Fethrzen atau dunia para petarung: sebutan yang digunakan para pendatang dari dunia lain untuk Fethrzen. Dunia ini satu-satunya tempat yang dimana orang-orang berkemampuan melebihi kemampuan orang biasa. Kemampuan itu kemampuan alami mereka yang dibawa sejak mereka lahir. Seperti halnya Denmar Neimar, seorang petarung yang lolos pada turnamen uji kemampuan yang diselenggarakan setiap periode oleh berbagai pihak di Fethrzen.
 
