@@ -17,7 +17,7 @@ Bocah itu tertawa ketika Satomi kesal terciprati genangan air hujan yang dimaink
 
 "Maafkan dia, dia hanya bermain-main. Lagipula, pakaianmu lama takpernah kau cuci Satomi." Sahut Goro Yanahiza tersenyum saat menoleh pada sahabatnya itu. Kemudian pandangannya berbalik pada Denmar dan kemudian pada ayahnya. Dua orang itu terlihat seperti berdebat. Ayahnya seperti mengenal Denmar.
 
-*****
+***
 Masa depan, masa depan dunia yang bernama Fethrzen atau dunia para petarung: sebutan yang digunakan para pendatang dari dunia lain untuk Fethrzen. Dunia ini satu-satunya tempat yang dimana orang-orang berkemampuan melebihi kemampuan orang biasa. Kemampuan itu kemampuan alami mereka yang dibawa sejak mereka lahir. Seperti halnya Denmar Neimar, seorang petarung yang lolos pada turnamen uji kemampuan yang diselenggarakan setiap periode oleh berbagai pihak di Fethrzen.
 =
 Denmar seorang pemuda yang memuja petarung tua bernama Beiru Krocop, yang hidup dalam gelimang harta dan ketenaran semasa jayanya ketika masih muda. Tapi berangkat usia lanjut Beiru kemudian menjadi seorang guru yang mengajarkan kebijaksanaan dalam mengasah kemampuan bela diri. Beiru Krocop juga mendirikan institusi wasit bela diri untuk turnamen-turnamen untuk menghindarkan penyalahgunaan wewenang saat terjadi hal tertentu pada turnamen yang diselenggarakan dimanapun di Fethrzen.
