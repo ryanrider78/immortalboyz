@@ -1,21 +1,25 @@
 LAUTTHAYYA
 =
 ***
-"Namaku Denmar, Denmar Lautthayya. Aku lelaki beruntung bisa bertemu dengan gadis secantik engkau Yanahiza." Sahut pemuda itu sambil meringis.
+"Namaku Denmar, Denmar Lautthayya. Aku lelaki beruntung bisa bertemu dengan gadis secantik engkau Yanahiza." Sahut pemuda itu sambil meringis. Beberapa kali gadis itu menghajarnya hanya karena bersikap seperti seorang bajingan. Tapi Denmar hanya berpura-pura, ia berusaha melakukan hal yang mungkin dipikirnya bisa dipandang banyak orang di hadapannya sebagai pria lemah. Tapi melihat hajaran dan pukulan itu hanya membuat Denmar terus menerus bersikap, makin teranglah bagi semua orang siapa sebenarnya pemuda yang ada di depan mereka.
 
-Sosok tinggi putih langsat berbalut setelan jaket dan celana ketat di depannya tersenyum.
+Sosok tinggi putih langsat berbalut setelan jaket dan celana ketat di depannya tersenyum. Dia bernama Goro Yanahiza, kakak Satomi yang sejak tadi berusaha menahan diri dari sikap Denmar yang konyol. 
 
-Kakek tua di sampingnya memandang ketus.
+Kakek tua di sampingnya memandang ketus. Pengawal keluarga Yanahiza, Hanking Fauza yang datang bersama cucunya. Jiara Hyoshi Fauza yang asyik memainkan air hujan. Takjauh dari tempat mereka duduk.
 
-"Kau mau dihajar pengawalku?" Sahut gadis yang dipanggil Yanahiza. Satomi Yanahiza membuang muka. Sama ketus dengan kakek tua bertubuh tambur yang kini bergerak mendekati anak kecil yang tengah bercanda bermain air hujan sampai basah kuyup. 
+"Kau mau dihajar pengawalku?" Sahut gadis yang dipanggil Yanahiza. Satomi Yanahiza membuang muka. Sama ketus dengan kakek tua bertubuh tambur yang kini bergerak mendekati anak kecil yang tengah bercanda bermain air hujan sampai basah kuyup. Kakek tua itu menjewer Jiara, bocah itu marah-marah karena merasa terganggu kakeknya.
 
 Denmar, pemuda itu tersenyum. "Jika kau mau jadi kekasihku, aku tidak keberatan dihajar beberapa kali."
 
-Satomi duduk mengikuti di sebelah seorang bocah yang bermain air hujan, tapi berusaha berpayung pohonan saat itu. Satomi mencibir dan mengatakan sesuatu yang menghina Denmar. "Dasar lelaki!"
+Satomi duduk mengikuti di sebelah seorang bocah yang tadi bermain air hujan, sekarang karena diminta dengan kasar oleh Hanking. Bocah itu berusaha berpayung daun rimbun pohonan saat itu. Ia memainkan dedaunan pohon dan rintik air hujan terlepas dari pepohonan karena gerakan tangan Jiara yang takpeduli sekitar atau kemarahan Hanking karena kenakalan bocah itu. 
+
+Satomi mencibir dan terdengar mengatakan sesuatu yang menghina Denmar. "Dasar lelaki! Lupakan aku merasa iba karena keinginanmu itu!"
 
 Bocah itu tertawa ketika Satomi kesal terciprati genangan air hujan yang dimainkannya. "Bocah sialan! Jangan main genangan air hujan, lihat semua mengenaiku! Aku benci jika baju kena basah!"
 
-"Maafkan dia, dia hanya bermain-main. Lagipula, pakaianmu lama takpernah kau cuci Satomi." Sahut Goro Yanahiza tersenyum saat menoleh pada sahabatnya itu. Kemudian pandangannya berbalik pada Denmar dan kemudian pada ayahnya. Dua orang itu terlihat seperti berdebat. Ayahnya seperti mengenal Denmar.
+"Maafkan dia, dia hanya bermain-main. Lagipula, pakaianmu lama takpernah kau cuci Satomi." Sahut Goro Yanahiza tersenyum saat menoleh pada adiknya itu. Kemudian pandangannya berbalik pada Denmar dan kemudian pada ayahnya. Dua orang itu terlihat seperti berdebat. Ayahnya seperti mengenal Denmar. Dai Yahahiza mengenal siapa Denmar. Denmar pasti punya alasan dengan sikapnya pada Satomi.[]
+
+
 
 Masa depan, masa depan dunia yang bernama Fethrzen atau dunia para petarung: sebutan yang digunakan para pendatang dari dunia lain untuk Fethrzen. Dunia ini satu-satunya tempat yang dimana orang-orang berkemampuan melebihi kemampuan orang biasa. Kemampuan itu kemampuan alami mereka yang dibawa sejak mereka lahir. Seperti halnya Denmar Neimar, seorang petarung yang lolos pada turnamen uji kemampuan yang diselenggarakan setiap periode oleh berbagai pihak di Fethrzen.
 
