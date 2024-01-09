@@ -3,7 +3,7 @@ LAUTTHAYYA
 ***
 "Namaku Denmar, Denmar Lautthayya. Aku datang pada kalian hari ini untuk menyampaikan permintaan Raja Lingo terkait penculikan-penculikan anak di perbatasan negeri kami." Denmar duduk di samping kelompok yang kini berada di kedai tidak jauh dari Douji.
 
-Pemuda berwajah tirus, selalu tersenyum. Ia mengenakan mahkota khusus kerajaan. Denmar anak angkat patih Kerajaan Valori negeri tetangga 
+Pemuda berwajah tirus, selalu tersenyum. Ia mengenakan mahkota khusus kerajaan. Denmar anak angkat patih Kerajaan Valori negeri tetangga Valiandra.
 
 "Aku lelaki beruntung bisa bertemu dengan gadis secantik engkau Yanahiza." Sahut pemuda itu sambil meringis menahan sakit. 
 
