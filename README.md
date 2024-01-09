@@ -1,7 +1,11 @@
 LAUTTHAYYA
 =
 ***
-"Namaku Denmar, Denmar Lautthayya. Aku lelaki beruntung bisa bertemu dengan gadis secantik engkau Yanahiza." Sahut pemuda itu sambil meringis. Beberapa kali gadis itu menghajarnya hanya karena bersikap seperti seorang bajingan. Tapi Denmar hanya berpura-pura, ia berusaha melakukan hal yang mungkin dipikirnya bisa dipandang banyak orang di hadapannya sebagai pria lemah. Tapi melihat hajaran dan pukulan itu hanya membuat Denmar terus menerus bersikap, makin teranglah bagi semua orang siapa sebenarnya pemuda yang ada di depan mereka.
+"Namaku Denmar, Denmar Lautthayya. Aku lelaki beruntung bisa bertemu dengan gadis secantik engkau Yanahiza." Sahut pemuda itu sambil meringis menahan sakit. 
+
+Beberapa kali gadis itu menghajarnya hanya karena bersikap seperti seorang bajingan yang bernafsu dan bersikap saat berkata penuh rayuan gombal. 
+
+Tapi Denmar hanya berpura-pura, ia berusaha melakukan hal yang mungkin dipikirnya bisa dipandang banyak orang di hadapannya sebagai pria lemah. Tapi melihat hajaran dan pukulan itu hanya membuat Denmar terus menerus bersikap, makin teranglah bagi semua orang siapa sebenarnya pemuda yang ada di depan mereka.
 
 Sosok tinggi putih langsat berbalut setelan jaket dan celana ketat di depannya tersenyum. Dia bernama Goro Yanahiza, kakak Satomi yang sejak tadi berusaha menahan diri dari sikap Denmar yang konyol. 
 
