@@ -11,23 +11,31 @@ Denmar anak angkat patih Kerajaan Valori negeri tetangga Valiandra. Ia diminta m
 
 Beberapa kali gadis itu menghajarnya hanya karena bersikap seperti seorang bajingan yang bernafsu dan bersikap saat berkata penuh rayuan gombal. 
 
-Tapi Denmar hanya berpura-pura, ia berusaha melakukan hal yang mungkin dipikirnya bisa dipandang banyak orang di hadapannya sebagai pria lemah. Tapi melihat hajaran dan pukulan itu hanya membuat Denmar terus menerus bersikap, makin teranglah bagi semua orang siapa sebenarnya pemuda yang ada di depan mereka.
+Tapi Denmar hanya berpura-pura, ia berusaha melakukan hal yang mungkin dipikirnya bisa dipandang banyak orang di hadapannya sebagai pria lemah. Tapi melihat hajaran dan pukulan itu hanya membuat Denmar terus menerus bersikap, makin teranglah bagi semua orang siapa sebenarnya pemuda yang ada di depan mereka. Hal itu terlihat di saat mahkota kerajaan yang mengkilap di banyak mata pengunjung kedai. 
 
-Sosok tinggi putih langsat berbalut setelan jaket dan celana ketat di depannya tersenyum. Dia bernama Goro Yanahiza, kakak Satomi yang sejak tadi berusaha menahan diri dari sikap Denmar yang konyol. 
+Douji adalah sebutan distrik kecil kota yang dipimpin kepala suku asli. Satomi Yanahiza bersama sebagian kecil keluarganya yang dalam pengawalan tamu di Douji. 
 
-Kakek tua di sampingnya memandang ketus. Pengawal keluarga Yanahiza, Hanking Fauza yang datang bersama cucunya. Jiara Hyoshi Fauza yang asyik memainkan air hujan. Takjauh dari tempat mereka duduk.
+Sosok tinggi putih langsat berbalut setelan jaket dan celana ketat di depannya tersenyum. Dia bernama Goro Yanahiza, kakak Satomi yang sejak tadi berusaha menahan diri dari sikap Denmar yang konyol. Baik Goro dan Satomi memang sama cantik. Tubuh mereka terlalu indah untuk dilewatkan mata.
+
+Kakek tua di sampingnya memandang ketus. Pengawal senior keluarga Yanahiza, Hanking Fauza yang datang bersama cucunya. Jiara Hyoshi Fauza yang asyik memainkan air hujan. Takjauh dari tempat mereka duduk.
 
 "Kau mau dihajar pengawalku?" Sahut gadis yang dipanggil Yanahiza. Satomi Yanahiza membuang muka. Sama ketus dengan kakek tua bertubuh tambur yang kini bergerak mendekati anak kecil yang tengah bercanda bermain air hujan sampai basah kuyup. Kakek tua itu menjewer Jiara, bocah itu marah-marah karena merasa terganggu kakeknya.
 
-Denmar, pemuda itu tersenyum. "Jika kau mau jadi kekasihku, aku tidak keberatan dihajar beberapa kali."
+Denmar, pemuda itu tersenyum. "Jika kau mau jadi calon kekasihku, aku tidak keberatan dihajar beberapa kali."
 
 Satomi duduk mengikuti di sebelah seorang bocah yang tadi bermain air hujan, sekarang karena diminta dengan kasar oleh Hanking. Bocah itu berusaha berpayung daun rimbun pohonan saat itu. Ia memainkan dedaunan pohon dan rintik air hujan terlepas dari pepohonan karena gerakan tangan Jiara yang takpeduli sekitar atau kemarahan Hanking karena kenakalan bocah itu. 
 
 Satomi mencibir dan terdengar mengatakan sesuatu yang menghina Denmar. "Dasar lelaki! Lupakan aku merasa iba karena keinginanmu itu!"
 
+Dua pengawal bawahan Hanking menjura memohon izin untuk kembali menghajar Denmar yang makin kelewatan berbicara pada Satomi. Hanking menahan mereka atas perintah Goro. Satomi juga, mengingat penjelasan awal Denmar tentang maksud diri mencari sebab-sebab keresahan di negeri tetangga. 
+
+Jiara kembali berulah, kali ini ia naik ke atas bangku tempat duduknya dan melompat ke kubangan air tidak jauh dari duduk Satomi. Hanya Satomi yang mengeluh panjang saat itu, ia menyeka wajahnya yang basah.
+
 Bocah itu tertawa ketika Satomi kesal terciprati genangan air hujan yang dimainkannya. "Bocah sialan! Jangan main genangan air hujan, lihat semua mengenaiku! Aku benci jika baju kena basah!"
 
-"Maafkan dia, dia hanya bermain-main. Lagipula, pakaianmu lama takpernah kau cuci Satomi." Sahut Goro Yanahiza tersenyum saat menoleh pada adiknya itu. Kemudian pandangannya berbalik pada Denmar dan kemudian pada ayahnya. Dua orang itu terlihat seperti berdebat. Ayahnya seperti mengenal Denmar. Dai Yanahiza mengenal siapa Denmar. Denmar pasti punya alasan dengan sikapnya pada Satomi.[]
+"Maafkan dia, dia hanya bermain-main. Lagipula, pakaianmu lama takpernah kau cuci Satomi." Sahut Goro Yanahiza tersenyum saat menoleh pada adiknya itu. Kemudian pandangannya berbalik pada Denmar dan kemudian pada ayahnya. Dua orang itu terlihat seperti berdebat. Ayahnya seperti mengenal Denmar. 
+
+Dai Yanahiza mengenal siapa Denmar. Denmar pasti punya alasan dengan sikapnya pada Satomi.[]
 
 
 ---------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
