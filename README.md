@@ -1,4 +1,4 @@
-8LAUTTHAYYA
+LAUTTHAYYA
 =
 ***
 "Namaku Denmar, Denmar Lautthayya. Aku datang pada kalian hari ini untuk menyampaikan permintaan Raja Lingo terkait penculikan-penculikan anak di perbatasan negeri kami." Denmar duduk di samping kelompok yang kini berada di kedai tidak jauh dari Douji. Wajah yang selalu cerah terpancar dan meninggalkan kesan bahwa ia datang untuk maksud baik.
