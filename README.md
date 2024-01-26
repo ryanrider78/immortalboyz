@@ -1,4 +1,4 @@
-LAUTTHAYYA
+8LAUTTHAYYA
 =
 ***
 "Namaku Denmar, Denmar Lautthayya. Aku datang pada kalian hari ini untuk menyampaikan permintaan Raja Lingo terkait penculikan-penculikan anak di perbatasan negeri kami." Denmar duduk di samping kelompok yang kini berada di kedai tidak jauh dari Douji. Wajah yang selalu cerah terpancar dan meninggalkan kesan bahwa ia datang untuk maksud baik.
@@ -13,7 +13,9 @@ Beberapa kali gadis itu menghajarnya hanya karena bersikap seperti seorang bajin
 
 Tapi Denmar hanya berpura-pura, ia berusaha melakukan hal yang mungkin dipikirnya bisa dipandang banyak orang di hadapannya sebagai pria lemah. Tapi melihat hajaran dan pukulan itu hanya membuat Denmar terus menerus bersikap, makin teranglah bagi semua orang siapa sebenarnya pemuda yang ada di depan mereka. Hal itu terlihat di saat mahkota kerajaan yang mengkilap di banyak mata pengunjung kedai. 
 
-Douji adalah sebutan distrik kecil kota yang dipimpin kepala suku asli. Satomi Yanahiza bersama sebagian kecil keluarganya yang dalam pengawalan tamu di Douji. 
+Douji adalah sebutan distrik kecil kota yang dipimpin kepala suku asli. Satomi Yanahiza bersama sebagian kecil keluarganya yang dalam pengawalan sebagai tamu di Douji. Kedatangan mereka di kedai kecil itu selain untuk berteduh juga berusaha melakukan hal yang sama seperti Denmar. 
+
+Hilangnya anak-anak dan perempuan di daerah sekitar mengundang rasa penasaran. Kecurigaan atas usaha kelompok tertentu juga menjadi bagian kepenasaran. Sejak pecahnya Valiandra dan munculnya pihak-pihak yang mengacaukan situasi di wilayah bekas pecahan Valiandra.
 
 Sosok tinggi putih langsat berbalut setelan jaket dan celana ketat di depannya tersenyum. Dia bernama Goro Yanahiza, kakak Satomi yang sejak tadi berusaha menahan diri dari sikap Denmar yang konyol. Baik Goro dan Satomi memang sama cantik. Tubuh mereka terlalu indah untuk dilewatkan mata.
 
@@ -62,5 +64,12 @@ Pada awal, tidak pernah ada Immortal Boyz. Tapi ada seorang bernama Zaizo Boyz, 
 Boyz menghilang sejak sadar bahwa namanya digunakan kelompok takbertanggungjawab yang mengacaukan keamanan dan stabilitas dunia. Sejak saat itu nama Immortal Boyz menjadi nama terburuk yang pernah diketahui alam semesta. Satu hal yang diketahui beberapa sahabat Boyz selama ini kalau hal alami yang mampu dilakukannya ialah mengubah ukuran dan bentuk tubuhnya meski tidak bertahan lama. Boyz selama ini menggunakan kemampuan alami itu untuk menyembunyikan keberadaannya.
 
 Lima ratus tahun lamanya, takterdengar lagi nama Immortal Boyz sebagai individu. Tapi dunia dikurung teror oleh Immortal Boyz sebagai kelompok pengacau dan bekerja dalam kegelapan. Denmar, Beiru dan nama-nama baru Paraimorta sebagai organisasi dalam dukungan serikat bangsa berusaha menyelidiki keberadaan Immortal Boyz dari tempat ke tempat yang diduga menjadi markas rahasia mereka.
+
+
+---------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
+
+
+
+
 ***
 
