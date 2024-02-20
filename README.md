@@ -3,7 +3,7 @@ LAUTTHAYYA
 ***
 "Namaku Denmar, Denmar Lautthayya. Aku datang pada kalian hari ini untuk menyampaikan permintaan Raja Lingo terkait penculikan-penculikan anak di perbatasan negeri kami." Denmar duduk di samping kelompok yang kini berada di kedai tidak jauh dari Douji. Wajah yang selalu cerah terpancar dan meninggalkan kesan bahwa ia datang untuk maksud baik.
 
-Pemuda berwajah tirus, selalu tersenyum. Ia mengenakan mahkota khusus kerajaan. Tapi mahkota itu tertutup topi khusus berbentuk kerudung yang terhubung ke jubahnya. 
+Pemuda berwajah tirus, selalu tersenyum. Ia mengenakan mahkota khusus kerajaan. Tapi mahkota itu tertutup topi khusus berbentuk kerudung yang terhubung ke jubahnya. Sehingga tidak mudah orang mengenal bahwa dirinya berasal dari kalangan istana. Denmar memang tidak pernah menginginkan dirinya yang dikenal sebagai bagian dari kerajaan. Valori adalah kerajaan raksasa yang sangat terkenal dengan perangai kasar dan lebih dulu bertindak sebelum bertanya. Denmar sebaliknya, ia merasa lebih baik bertanya dan berbicara baik-baik setiap masalah ada di hadapannya terlebih dulu daripada melakukan tindakan.
 
 Denmar anak angkat patih Kerajaan Valori negeri tetangga Valiandra. Ia diminta menyelidiki diam-diam selain meminta izin ayah angkatnya untuk mencari pengalaman bertarung setelah lima belas tahun berlatih beladiri.
 
